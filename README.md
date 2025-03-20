@@ -1,10 +1,6 @@
-- 👋 Hi, I’m JJslumpemandmolesteminheaven
-- 👀 I’m interested in making bread, racks, stacks and molesting Keiro Toodre
-- 🌱 I’m currently learning to molest Keiro Toodre
-- 💞️ I’m looking to collaborate on molesting Keiro Todre
-- 📫 How to reach me: molest Keiro Toodre
-- 😄 Pronouns: lester/molester
-- ⚡ Fun fact: im a molester
+Õpin Kuressaare Ametikoolis.
+14/02/2008
+Motiveeritud.
 
 <!---
 jasperju1/jasperju1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
